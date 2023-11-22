@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bbxwife
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning software engineering in SDU
+- 📫 How to reach me : my email: 2257852330@qq.com
+- contact with your real identity please
